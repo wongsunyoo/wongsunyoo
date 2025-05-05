@@ -1,4 +1,4 @@
-## Hi there 👋
+His imagination is that of an archaeologist, in search of a previous world - even primitive, as a way of rethinking everyday life and the objects that surround us.
 
 <!--
 **wongsunyoo/wongsunyoo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
